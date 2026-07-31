@@ -5,7 +5,7 @@
 </p>
 
 <p align=center>
-  [Read my bloodymary fic!](https://archiveofourown.org/works/89629786/chapters/238085376)
+  Read my bloodymary fic! -> https://archiveofourown.org/works/89629786/chapters/238085376
 </p>
 <p align="center">
   <img src="https://64.media.tumblr.com/c8abaa7533dd824e39ec76b10d279ff7/b4a9f174f55f0d03-50/s540x810/3420ca7d68379bf544c7fb382b4e2f8b3c0a2e7a.pnj">
